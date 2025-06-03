@@ -1,1 +1,1 @@
-# -LucianoNascimentoWesleySilva_ws_OS_RR_2025
+# LucianoNascimentoWesleySilva_ws_OS_RR_2025
